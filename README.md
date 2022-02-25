@@ -1,0 +1,2 @@
+# Time
+TIME TOKEN is a community based platform which aims to build DeFi (Decentralized finance) and NFT market place. TIME TOKEN provides a unique technology to its users which will allow the people to easily execute the Binance blockchain protocol and provides the similar services like firms and institutions  TIME TOKEN Launched his own token TM which will help to grow the future of online business, DeFi (Decentralized finance) and NFT marketplace.
